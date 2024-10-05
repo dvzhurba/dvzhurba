@@ -1,2 +1,1 @@
 - 👋 Hi, I’m @dvzhurba
-- You reach me out via Telegram @dzhurba
